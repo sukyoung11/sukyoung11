@@ -1,7 +1,9 @@
 
 ![header](https://capsule-render.vercel.app/api?type=shark&color=gradient&height=300&section=header&text=%20%20✿%20•%20◡%20•%20✿&fontSize=90)
 ⠀⠀
-# ｓｕｋｙｏｕｎｇ'ｓ ｇｉｔ ｈｕｂ
+# ｓｕｋｙｏｕｎｇ'ｓ following is zero.
+
+## Follow me~ :)
 ⠀
 
 
